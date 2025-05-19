@@ -12,8 +12,13 @@ Designed to replace train platform seats, SimplyGlow aims to cultivate a dynamic
 ![CC11_SimplyKnow_Part2_page-0002](https://github.com/user-attachments/assets/1a2bca3e-84d8-48cc-974c-5716195767cb)
 ![screencapture-simply-glow-sutd-squarespace-2025-05-19-17_58_26 (2) (5)](https://github.com/user-attachments/assets/0e923090-01f6-47b5-829b-b1137f2a7bae)
 ![screencapture-simply-glow-sutd-squarespace-2025-05-19-17_58_26 (2) (1)](https://github.com/user-attachments/assets/45cb838c-3924-44df-a189-0431eaf79962)
-https://www.youtube.com/watch?v=9Ih2bC1vGgU
-![screencapture-simply-glow-sutd-squarespace-2025-05-19-17_58_26-2](https://github.com/user-attachments/assets/d1849f53-8561-4334-b923-bbc469714811)
+![Watch the video](https://github.com/user-attachments/assets/3f3a3c00-6073-4c70-abd0-7155ef0d7eec)
+[![Watch the video](https://github.com/user-attachments/assets/3f3a3c00-6073-4c70-abd0-7155ef0d7eec)](https://www.youtube.com/watch?v=9Ih2bC1vGgU)
+![screencapture-simply-glow-sutd-squarespace-2025-05-19-17_58_26-2 (1)](https://github.com/user-attachments/assets/e533067f-3d46-4650-a434-295d6974c21b)
+![Artboard 1_page-0001](https://github.com/user-attachments/assets/edf9c4ba-0977-48ca-bf53-5a26f82fcf6e)
+![MSS DTP_page-0001](https://github.com/user-attachments/assets/0971b82f-7484-47dc-8583-d50fea3e332e)
+![Simplygo A1 Artboard 2_page-0001 (1)](https://github.com/user-attachments/assets/dcf20258-fd59-41d2-aaec-90dcdc9253b6)
+
 
 ## Authors
 
